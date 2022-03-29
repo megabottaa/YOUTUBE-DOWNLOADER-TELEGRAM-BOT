@@ -1,4 +1,4 @@
-Telegram Bot Link --> @adamXytXvanced_bot
+## ∆Telegram Bot Link∆ --> https://t.me/adamXytXvanced_bot
 
 
 #  ❰🍁🔱  T Rex BOT  🔱🍁❱ Telegram
